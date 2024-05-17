@@ -9,7 +9,9 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 ![](https://media.tenor.com/9cMjKr3BAiUAAAAi/microscope-objects.gif)
 
-email📧
+![](https://media.tenor.com/Ywy2QP1soHEAAAAM/cat-cutie.gif)
+
+email:📧
 edson.prof13@gmail.com
 
 
